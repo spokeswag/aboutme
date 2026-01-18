@@ -1,5 +1,5 @@
 Hi,
- I go by Spoon, Ink, Asp, Toy or Nil. I'm 18 years old, please don't be weird around me if you're a minor
+ I go by Dahl, Ink, Asp, Toy or Nil. I'm 18 years old, please don't be weird around me if you're a minor
 
 I go it/its or any dehumanizing pronouns (ex. that/thats). I may use mirror pronouns sometimes so just be wary. I sometimes prefer to go by no pronouns at times, I will lyk. <3 Also FYI i'd rather not be called by they/them it just doesn't sit right with me. Learn more about my Identity w my pronouns page! I suggest you read it before interacting with me.
 
