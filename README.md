@@ -8,5 +8,5 @@ I also tend to ignore people try not to take it too much to heart I do it to dis
 I have my DNI listed on my pronouns page, but i'm still not limited to these DNIS and still block freely. I am not that sensitive of a person unless you disrespect me, my friends or my interests, hence why I'm not that likely to block for any reason outside of my DNI.
 
 
-<img width="500" height="500" alt="HOm5QF8WgAAQln5-removebg-preview" src="https://github.com/user-attachments/assets/283300e3-20f1-42e0-a801-a52d64b034b5" />
+
 
